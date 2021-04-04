@@ -1,0 +1,1 @@
+# Treasure-Collecting-Game-compatible-for-all-Device
